@@ -1,4 +1,4 @@
-ЛИЦЕНЗИОННОЕ СОГЛАШЕНИЕ / LICENSE AGREEMENT
+ПпЛИЦЕНЗИОННОЕ СОГЛАШЕНИЕ / LICENSE AGREEMENT
 для владельцев NFT из коллекций бренда«CreativeLIFE by Natal'ya Lesnikova»
 for NFT holders of the«CreativeLIFE by Natal'ya Lesnikova» brand collections
 
